@@ -1,5 +1,5 @@
 # Demo
 Demo for working with git
-sfghfgsssssfff
-ssssssssfffffssss
-iahusygdgdvhbasd
+how was it working ah
+y no conflict on 
+omg

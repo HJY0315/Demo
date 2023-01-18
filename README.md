@@ -1,4 +1,5 @@
 # Demo
 Demo for working with git
-sfghfgffffffffff
-ssssssssssssssss
+how was it working ah
+y no conflict on 
+omg
